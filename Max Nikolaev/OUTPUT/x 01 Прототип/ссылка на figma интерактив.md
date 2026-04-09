@@ -1,0 +1,1 @@
+https://www.figma.com/proto/6Q6PazVdrTlfKbIz0TJsSw/it---beerent?node-id=28-1820&p=f&viewport=710%2C399%2C0.11&t=eO5MACuTVoytR78v-1&scaling=min-zoom&content-scaling=fixed&starting-point-node-id=28%3A1820&page-id=0%3A1&show-proto-sidebar=1
